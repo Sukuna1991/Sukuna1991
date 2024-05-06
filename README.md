@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with myself.
 - 📫 How to reach me : Don't try, even I don't know how to contact with myself.
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I'm dead as F**k.
+- ⚡ Fun fact: I'm still alive.
 
 <!---
 Sukuna1991/Sukuna1991 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
